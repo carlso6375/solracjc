@@ -77,6 +77,6 @@ INSTALAÇÃO:
 |       ✅       | 18+.                             |
 |       ✅       | MAIS recursos em breve 🍂        |
 
-DARKZIN DOMINA 🐦❤️
+𝙎𝙊𝙇𝙍𝘼𝘾 𝙊 𝙈𝘼𝙄𝙎 𝘽𝙍𝘼𝘽𝙊🐦❤️
 
 <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Mario_Gameplay.gif" alt="Mario Game" width="600" />
